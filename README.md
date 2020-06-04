@@ -1,8 +1,8 @@
 # xiou_xiou
-
-May you get what you want what you want what you want.
-ᴹᵃʸ ʸᵒᵘ ᵍᵉᵗ ʷʰᵃᵗ ʸᵒᵘ ʷᵃⁿᵗ ʷʰᵃᵗ ʸᵒᵘ ʷᵃⁿᵗ ʷʰᵃᵗ ʸᵒᵘ ʷᵃⁿᵗ.
-愿你：所得皆所期，所求皆所愿，所行皆坦途。
+<br/>
+May you get what you want what you want what you want.<br/>
+ᴹᵃʸ ʸᵒᵘ ᵍᵉᵗ ʷʰᵃᵗ ʸᵒᵘ ʷᵃⁿᵗ ʷʰᵃᵗ ʸᵒᵘ ʷᵃⁿᵗ ʷʰᵃᵗ ʸᵒᵘ ʷᵃⁿᵗ.<br/>
+愿你：所得皆所期，所求皆所愿，所行皆坦途。<br/>
 
 We are all vulgar people who collapsed at night. Please try to be happy at the moment.
 ᵂᵉ ᵃʳᵉ ᵃˡˡ ᵛᵘˡᵍᵃʳ ᵖᵉᵒᵖˡᵉ ʷʰᵒ ᶜᵒˡˡᵃᵖˢᵉᵈ ᵃᵗ ⁿⁱᵍʰᵗ. ᴾˡᵉᵃˢᵉ ᵗʳʸ ᵗᵒ ᵇᵉ ʰᵃᵖᵖʸ ᵃᵗ ᵗʰᵉ ᵐᵒᵐᵉⁿᵗ.
